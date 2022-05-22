@@ -1,4 +1,4 @@
-### Hi there 👋, Varsha
+### Hi there 👋
 #### Student Of Computer Science
 ![Student Of Computer Science](https://image.shutterstock.com/image-vector/hi-there-inscription-handwritten-lettering-260nw-1798736197.jpg)
 
